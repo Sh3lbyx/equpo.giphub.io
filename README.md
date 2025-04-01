@@ -1,0 +1,2 @@
+# equpo.giphub.io
+equipo
